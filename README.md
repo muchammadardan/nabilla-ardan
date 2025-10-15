@@ -1,4 +1,4 @@
-# Wedding Invitation - Gita & Rangga
+# Wedding Invitation - Nabilla & Ardan
 
 Undangan pernikahan digital yang telah berhasil disalin dari https://by.memonika.com/gita-rangga/
 
